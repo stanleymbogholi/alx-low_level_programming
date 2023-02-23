@@ -1,1 +1,1 @@
-Triangles
+Prime factors
