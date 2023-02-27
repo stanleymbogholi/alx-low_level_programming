@@ -1,1 +1,1 @@
-strcpy
+Great leaders
