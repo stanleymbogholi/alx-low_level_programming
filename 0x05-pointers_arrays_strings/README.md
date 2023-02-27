@@ -1,1 +1,1 @@
-Winning
+Arrays are not pointers
