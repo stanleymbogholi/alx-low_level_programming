@@ -1,1 +1,1 @@
-3.strcmp
+I am a kind of paranoid
