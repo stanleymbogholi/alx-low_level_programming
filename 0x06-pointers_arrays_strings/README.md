@@ -1,1 +1,1 @@
-I am a kind of paranoid
+Always look up
