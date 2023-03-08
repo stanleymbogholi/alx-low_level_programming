@@ -1,1 +1,1 @@
-She locked away a secret
+Why is it so important to dream?
