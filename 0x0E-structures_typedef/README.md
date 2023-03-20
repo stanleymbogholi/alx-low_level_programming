@@ -1,1 +1,1 @@
-A door is what a dog is perpetually on the wrong side of
+How many legs does a dog have
