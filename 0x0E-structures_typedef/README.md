@@ -1,1 +1,1 @@
-A dog will teach you unconditional love
+A door is what a dog is perpetually on the wrong side of
