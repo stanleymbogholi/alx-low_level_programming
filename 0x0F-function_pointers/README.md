@@ -1,1 +1,1 @@
-A goal is not always meant to be reached
+Most hackers are young
