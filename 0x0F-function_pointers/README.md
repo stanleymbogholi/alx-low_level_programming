@@ -1,1 +1,1 @@
-you spend too much time thinking
+To hell with circumstances;I create opportunities
